@@ -7,7 +7,7 @@ Apart from that, I have a second life, I believe martial art is ver critical in 
 
 
 - [Find me ](https://www.linkedin.com/in/xiangyu-sun/) on Linkedin
-- [Follow me ](https://medium.com/@xiangyu.sun) on Medium
+- [Follow me ](https://medium.com/@xiangyu-sun) on Medium
 - [Follow me ](https://twitter.com/budo_coder) on Twitter
 - [Find me ](https://www.facebook.com/alexander.luc.sun) on Facebook
 
